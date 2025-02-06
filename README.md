@@ -1,0 +1,1 @@
+# FritzZoomcamp2025
